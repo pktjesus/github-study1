@@ -6,4 +6,4 @@
 3. 민선아: sen5739@gmail.com (manyong1204.github.io/)
 4. 김진재: wlswo0105@gmail.com (denada0.github.io/)
 5. 안세기: tony9808080808@gmail.com (tony9808080808-cmyk.github.io/)
-6. 
+6. 홍승현: acple005@gmail.com(acple005-creator.github.io/)
